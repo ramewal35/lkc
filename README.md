@@ -1,0 +1,2 @@
+# lkc
+layllpur khalsa college
